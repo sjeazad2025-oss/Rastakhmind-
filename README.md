@@ -1,0 +1,2 @@
+# Rastakhmind-
+MAINNET GENESIS یا COMMAND CENTER
